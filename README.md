@@ -1,2 +1,0 @@
-# satyamshivamconstraction
-self
